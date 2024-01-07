@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **mjsaikot@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1JB_I3WO7_VmG8CCtnktpeIvjwKjleTyd/edit?usp=drive_link&ouid=111831170309388092416&rtpof=true&sd=true](https://docs.google.com/document/d/1JB_I3WO7_VmG8CCtnktpeIvjwKjleTyd/edit?usp=drive_link&ouid=111831170309388092416&rtpof=true&sd=true)
+- 📄 Know about my experiences [My CV:->](https://drive.google.com/file/d/1DJ1k7X1o2ZI9AwTVqPzeZDbL0pEWHIsJ/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
